@@ -2,12 +2,12 @@ Cashew Chicken Alfredo
 ======================
 
 Modified from http://vegweb.com/index.php?topic=17310.0 - we use Soy Curls in
-this recipe.
+this recipe. The original recipes suggests using starchy pasta-cooking water for increased thickening.
 
 Ingredients
 -----------
 * 1/2 cup raw cashews
-* 1 1/2 cups boiling water (best to use starchy pasta-cooking water)
+* 1 1/2 cups boiling water
 * 1 teaspoon fresh lemon juice
 * 1-3 garlic cloves, to taste
 * 1 tablespoon olive oil
