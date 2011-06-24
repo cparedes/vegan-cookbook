@@ -6,13 +6,13 @@ this recipe.
 
 Ingredients
 -----------
-1/2 cup raw cashews
-1 1/2 cups boiling water (best to use starchy pasta-cooking water)
-1 teaspoon fresh lemon juice
-1-3 garlic cloves, to taste
-1 tablespoon olive oil
-2 tablespoons nutritional yeast
-salt and pepper, to taste
+* 1/2 cup raw cashews
+* 1 1/2 cups boiling water (best to use starchy pasta-cooking water)
+* 1 teaspoon fresh lemon juice
+* 1-3 garlic cloves, to taste
+* 1 tablespoon olive oil
+* 2 tablespoons nutritional yeast
+* salt and pepper, to taste
 
 Directions
 ----------
